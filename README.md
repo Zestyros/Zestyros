@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Zestyros
+- 👀 I’m interested in sport, movie, anime
+- 🌱 I’m currently learning different techs
